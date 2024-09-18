@@ -1,1 +1,1 @@
-yakında!
+40 starsda güzel bir public botu!
